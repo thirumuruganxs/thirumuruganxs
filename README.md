@@ -26,7 +26,7 @@ I'm a Computer Science and Engineering undergraduate at Saveetha Engineering Col
 - Develop practical technical skills
 
 ### Connect With Me
-- [LinkedIn](PASTE_YOUR_LINKEDIN_URL_HERE)
+- [LinkedIn](https://www.linkedin.com/in/thirumurugan-k-m-s-898444440/)
 
 ---
 
